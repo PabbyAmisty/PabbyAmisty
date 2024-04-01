@@ -7,7 +7,7 @@
 - 📫 How to reach me: collabrate with me
 - 😄 Pronouns:he/him
 - _**⚡ Fun fact:Almonds are a member of the peach family**_
-- Favoutite quotes are by MARK TWAUIN
+- Favoutite quotes are by MARK TWAIN
 - 1. _**If you tell the truth you dont have to remember anything**_
   2. _**Continuous improvement is better than delayed perfection**_
   
